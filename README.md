@@ -1,4 +1,4 @@
-# 👋 Hello! I'm Namoshree Badkhal
+# 🔥🔥 Hello! I'm Namoshree Badkhal 🔥🔥
 
 👋 Hey, I’m Namoshree Badkhal — a Computer Science undergraduate who writes code, breaks it, fixes it (usually), and occasionally ends up learning something new in the process.
 🎓 A passionate second-year student with a growing enthusiasm for the world of coding.  
